@@ -1,7 +1,7 @@
 ## Paul Simon ##
 
 ### Paul Simon - Homeward Bound - Live on Skavlan | SVT/NRK/Skavlan  
-https://www.youtube.com/watch?v=LtApZC8jRq8)
+https://www.youtube.com/watch?v=LtApZC8jRq8
 
 Paul Simon: Bridge Over Troubled Water (Live) - SNL  
 https://www.youtube.com/watch?v=hGDdX-yV3dQ
